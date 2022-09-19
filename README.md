@@ -1,3 +1,5 @@
 # actividadGrupal_2
 INTEGRANTES DEL GRUPO:
-Manuel Loiacono Vaccare
+manuel Loiacono Vaccare
+jefferson garcia 
+
