@@ -2,3 +2,6 @@
 INTEGRANTES DEL GRUPO:
 Manuel Loiacono Vaccare
 Torres Edgardo Ivan
+manuel Loiacono Vaccare
+jefferson garcia 
+
