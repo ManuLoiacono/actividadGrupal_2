@@ -3,4 +3,4 @@ INTEGRANTES DEL GRUPO:
 Manuel Loiacono Vaccare
 Torres Edgardo Ivan
 jefferson garcia 
-
+Juan Bernardo Galardo
